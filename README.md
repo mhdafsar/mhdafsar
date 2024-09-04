@@ -1,4 +1,4 @@
-### Hi I'm **Mohamed Afsar M**.
+### Hi, I'm Mohamed Afsar M
 
 - Pursuing B.Tech Information Technology.
 - An Aspiring Junior Sofftware Developer.
