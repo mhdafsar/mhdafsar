@@ -1,7 +1,7 @@
 ### Hi, I'm Mohamed Afsar M
 
 - Pursuing B.Tech Information Technology.
-- An Aspiring Junior Sofftware Developer.
+- An Aspiring Junior Software Developer.
 - A Tech Enthusiast.
 - Looking for a Job where I can execute my skills and learn things from that.
    
